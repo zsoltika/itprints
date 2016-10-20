@@ -6,7 +6,7 @@ Free designer's prints and wall posters in high resolution for IT Professionals.
 
 For custom requests and more information, please visit [TEE4IT](HTTPS://TEE4IT.COM) website
 
-For getting updates when new posters are published, follow [@tee4it](https://twitter.com/tee4it) on Twitter
+For getting updates when new posters are published, follow the project on [Twitter](https://twitter.com/tee4it) and [Instagram](https://www.instagram.com/tee4it/)
 
 # License
 
